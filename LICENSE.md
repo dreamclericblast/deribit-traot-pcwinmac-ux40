@@ -1,4 +1,4 @@
-# 
+# Premium deribit trading bot extensões for Mac OS | Ultimato deribit trading bot extensões for PC Windows. Featuring análise de momento and API de exchange centralizada — optimized for maximum performance.
 
 
 
